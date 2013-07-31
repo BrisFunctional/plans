@@ -7,4 +7,4 @@ What do we get up to at BrisFunctional?
 
   There's food & drink laid on by Nokia and we usually decamp to a pub to continue the discussion afterwards.
 
-  So - come along and join in.  See you there?
+  So - come along and join in.  See you there?  Follow us for FP-related news & updates: [@BrisFunctional](http://twitter.com/BrisFunctional).
